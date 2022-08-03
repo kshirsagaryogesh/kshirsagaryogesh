@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kshirsagaryogesh
-- 👀 I’m interested in .
+- 👀 I’m interested in create a new things
 - 🌱 I’m currently learning B.Tech from COEP
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
